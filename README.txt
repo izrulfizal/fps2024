@@ -1,1 +1,0 @@
-This is the official site for the 2nd  FSKTM Postgraduate Symposium
